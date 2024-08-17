@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 I am in Fourth year Electronics and Communication Engineering student. Find me coding and chilling :)<br>
 
 
